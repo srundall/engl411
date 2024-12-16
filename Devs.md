@@ -1,0 +1,3 @@
+# Devs
+
+One show I watched this year was called __Devs.__ Personally I did not enjoy this show very much. It is basically about evil computer programmers who have figured out a way to program computers into seeing what the past and the future look like on giant monitors. Using this technology, they can see events like Jesus' crucifixion or Joan of Arc's execution as if they were happening live on TV. There are several moral questions in this show, but the ending was very unsastisfying and I had weird dreams after watching it.
