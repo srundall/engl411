@@ -1,3 +1,3 @@
-# Ehlers Danlos Info Page
+# TV Shows I Watched This Year
 
-This is an info page about the hypermobility class of Ehlers Danlos Syndrome.
+This is an informational page about the TV shows I watched in 2024.
