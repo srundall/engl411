@@ -1,3 +1,2 @@
 # Station 11
 
-I watched Station 11 this year, which is a miniseries about what happens after a rapid virus kills 99% of human civilization. It takes place in Chicago and follows several main characters whose lives intersect based on an unpublished graphic novel called _Station 11._ This show was my favorite that I watched this year, as it focused much more on the relationships between the characters than it did on the apocalypse itself. It presents itself more as a drama than as an action/thriller show.
