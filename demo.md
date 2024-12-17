@@ -7,5 +7,5 @@ _italics_ __bold__ ~~strikethrough~~
 - List
     - Sub item in list
 
-git add images/starrynight.jpg
+
 ![nightskylandscape](images/starrynight.jpg)
